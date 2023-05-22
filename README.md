@@ -9,3 +9,5 @@ A medida que los memes de MrGraso se compartían y viralizaban, el personaje adq
 Con el tiempo, MrGraso se convirtió en un fenómeno de internet y un punto de referencia en la cultura de los memes en línea. Las personas empezaron a crear nuevas imágenes y adaptaciones del personaje, añadiendo variantes y expresiones para ampliar su diversidad.
 
 La historia de MrGraso es un recordatorio de cómo algo tan simple como una imagen puede capturar la imaginación de las personas y llevar a la creación de una comunidad en línea que comparte risas y alegría. A día de hoy, el legado de MrGraso sigue vivo en el vasto mundo de los memes y en la diversión que brinda a las personas en las redes sociales.
+
+HOLA SOY UN MINI CAMBIO UWU
