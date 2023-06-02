@@ -12,3 +12,4 @@ La historia de MrGraso es un recordatorio de cómo algo tan simple como una imag
 
 HOLA SOY UN MINI CAMBIO UWU
 OwO
+La wea ACTUALIZADA XD
