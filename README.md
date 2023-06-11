@@ -19,10 +19,10 @@ La historia de MrGraso es un recordatorio de cómo algo tan simple como una imag
 HOLA SOY UN MINI CAMBIO UWU
 OwO
 La wea ACTUALIZADA XD
-<<<<<<< HEAD
+
 =======
 AHHHHHHHHHH ME CORROMPEN PAPUS PAPUS PAPUS PAPUS PAPUS PAPUS XD
->>>>>>> ae5d9c3 (C corrupción)
 =======
->>>>>>> main
->>>>>>> dbd03baf7bc02a0fdf322060203c80ee5ef549d9
+
+ESTOS CAMBIOS DEBEN VERSE REFLEJADOS EN EL FETCH, SUPONGO XD
+
