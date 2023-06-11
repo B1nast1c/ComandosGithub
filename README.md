@@ -1,9 +1,3 @@
-<<<<<<< HEAD
-<<<<<<< HEAD
-=======
-AHHHHHHHHHH ME CORROMPEN PAPUS PAPUS PAPUS PAPUS PAPUS PAPUS XD
-=======
->>>>>>> dbd03baf7bc02a0fdf322060203c80ee5ef549d9
 Una vez, en un pequeño rincón de Internet, habitaba un usuario llamado Juan. Juan era un apasionado de los memes y tenía un sentido del humor único. Un día, mientras navegaba por las redes sociales, Juan se topó con una foto de un hombre con sobrepeso y una expresión facial cómica.
 
 Inmediatamente, Juan vio el potencial humorístico de esa imagen y decidió que ese personaje necesitaba un nombre. Así es como nació "MrGraso". Juan comenzó a crear y compartir memes con la imagen de MrGraso en diferentes situaciones, acompañándolos con comentarios ingeniosos y sarcásticos.
